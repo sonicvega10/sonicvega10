@@ -1,1 +1,1 @@
-<iframe src='https://gfycat.com/ifr/AmpleJubilantAfricanfisheagle' frameborder='0' scrolling='no' allowfullscreen width='640' height='684'></iframe><p> <a href="https://gfycat.com/amplejubilantafricanfisheagle">via Gfycat</a></p>
+<image src='https://gfycat.com/ifr/AmpleJubilantAfricanfisheagle' frameborder='0' scrolling='no' allowfullscreen width='640' height='684'></image><p> <a href="https://gfycat.com/amplejubilantafricanfisheagle">via Gfycat</a></p>
